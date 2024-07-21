@@ -1,0 +1,2 @@
+# Flato Team
+At Flato, we strive to bring together skilled and passionate individuals in development and marketing to provide our clients with solutions that incorporate the latest technologies in the world. Our team is composed of individuals who, with high levels of collaboration and coordination, continuously seek improvement and advancement in the development and design of applications and websites.
